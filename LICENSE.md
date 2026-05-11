@@ -1,4 +1,4 @@
-
+Enhance Obsidian for macOS with Obsidian for macOS premium Addon: AI assistant & custom shortcuts, the #1 addon. Includes AI assistant and custom shortcuts for a smoother
 
 
 
